@@ -8,4 +8,4 @@
 ## ![Lightning](lightning.jpg)
 ## ![Rivendell](rivendell.jpg)
 
-#### I do not take credit for any of the art. I found most of it on reddit on the r/imaginary chain of subreddits
+#### I do not take credit for any of the art. I found most of it on reddit on the [r/imaginary](https://reddit.com/r/imaginary/) chain of subreddits
