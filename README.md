@@ -1,4 +1,4 @@
-# Collection of wallpapers I enjoy looking at...
+# Collection of wallpapers I enjoy looking at
 
 ## ![Castle](castle-dusk.jpg)
 ## ![Indoors](indoors.jpg)
