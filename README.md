@@ -10,4 +10,3 @@
 ## ![Courtyard](courtyard.jpg)
 
 #### I do not take credit for any of this art as most of it comes from the [r/ImaginaryNetwork](https://reddit.com/r/ImaginaryNetwork/) chain of subreddits.
-Possible pc cop:https://www.quietpc.com/sys-bundle-ryzen-itx
